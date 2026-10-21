@@ -1,0 +1,2 @@
+# ladder-privacy
+PRIVACY POLICY FOR LADDER APP
